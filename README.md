@@ -78,9 +78,9 @@
 ## 📬 Liên hệ
 
 - GitHub: [your-username](https://github.com/your-username)
-- Email: your-email@example.com
-- LinkedIn: [Your Name](https://linkedin.com/in/your-link)
-
+- Email: beniot.robaiot1137@gmail.com
+- LinkedIn: [Ben Phan]([https://linkedin.com/in/your-link](https://www.linkedin.com/in/ben-phan-30187b375/))
+- YouTube: [Ben Phan] (https://www.youtube.com/@BenPhan-1137)
 ---
 
 <p align="center">
